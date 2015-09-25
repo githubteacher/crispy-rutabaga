@@ -1,1 +1,1 @@
-My favorite restaurant is Nachos in Bellevue, TN
+My favorite restaurant is Nacho's in Bellevue, TN.
